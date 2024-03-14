@@ -1,0 +1,2 @@
+# StarC
+CRYPTO PROJECT
